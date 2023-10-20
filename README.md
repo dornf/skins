@@ -1,2 +1,2 @@
 # [axerino]([https://cdn.discordapp.com/attachments/308277637506138112/1165058396689543258/axerino.osk?ex=6545782f&is=6533032f&hm=d4226c0f68a3bf542db3a29a3ea93816f1a9f889cf8120ef5256a1b5b85b3be2&)
-[![](https://i.imgur.com/1TAwhvm.png)](https://cdn.discordapp.com/attachments/308277637506138112/1165058396689543258/axerino.osk?ex=6545782f&is=6533032f&hm=d4226c0f68a3bf542db3a29a3ea93816f1a9f889cf8120ef5256a1b5b85b3be2&)
+[![](https://i.imgur.com/YSWiSUe.png)](https://cdn.discordapp.com/attachments/308277637506138112/1165058396689543258/axerino.osk?ex=6545782f&is=6533032f&hm=d4226c0f68a3bf542db3a29a3ea93816f1a9f889cf8120ef5256a1b5b85b3be2&)
